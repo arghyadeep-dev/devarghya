@@ -1,5 +1,2 @@
-vnit
-ketan sarode,ketan sarode
-jaypuri loves vics
-atharva loves memes
-
+duniya gol nehi.....
+geodesic hai
